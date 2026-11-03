@@ -1,1 +1,1 @@
-# laughing-succotash
+Llevaba semanas con mi cuenta de Twitter estancada, publicando y nada. Un amigo me habló de una tienda donde puedes encontrar seguidores, likes, retweets, visualizaciones, comentarios e incluso encuestas. Lo probé en https://es.mrpopular.net/?category=socialnetworks&type=Twitter y lo que más me gustó es que los precios son bastante bajos y empecé casi sin esperar. Para mí fue el empujón que necesitaba para animarme a escribir más.# laughing-succotash
